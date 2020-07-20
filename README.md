@@ -1,0 +1,1 @@
+# Takenmind_Internship_assignments
